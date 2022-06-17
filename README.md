@@ -1,0 +1,1 @@
+# MEN ERGasahev shohrux SAMARQAND da tugilganman 
